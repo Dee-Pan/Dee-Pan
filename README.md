@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Deepan
+👋 Hi, I’m Deepan
 
